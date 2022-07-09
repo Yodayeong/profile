@@ -1,6 +1,6 @@
 # What I've did
 
-## TEDxYough@HyosungGirlsHS
+## TEDxYouth@HyosungGirlsHS
 
 ## 클러취직 프로젝트
 
